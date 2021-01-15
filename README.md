@@ -1,1 +1,1 @@
-# [About Me](https://rebekahcallkacz.github.io/).
+# [About Me](https://rebekahcallkacz.github.io/)
